@@ -1,2 +1,1 @@
-# map-dao
-Ubuntu Crypto Use Map DAO
+# Ubuntu Crypto Use Map DAO
