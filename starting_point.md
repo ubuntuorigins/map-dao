@@ -1,0 +1,3 @@
+# Starting Point
+
+The propose map use would be develop for use across the globe however, for the purpose of this proposal the focus is on businesses (informal and formal) in Africa and hopefully, the project would start in Ghana. This is because, it is difficult for money to cross border within the Africa continent. This makes is difficult for people living on the continent to deliver value and services across border. There is too much regulations that is stifling business operation and deepening the. Poverty of the African people. We believe that the crypto map use DAO would create an aggregate of creators who can function with no limitation since blockchain offers solutions yet Africa is slow in adopting it. 
